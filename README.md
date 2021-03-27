@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AlK3
+- 👀 I’m interested in U
+- 🌱 I’m currently learning U
+- 💞️ I’m looking to collaborate with U
+- 📫 U know how to reach me 
